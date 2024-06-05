@@ -6,4 +6,5 @@ Meu nome é **Enzo Antonio** 🤙
 - Gosto de jogar futebol 
 - Santos FC, gostaria de ser da TJ 🐳
 - Apostador do Fortune Tiger PG 👨‍💻 🐯💰
-- ![](https://media1.tenor.com/m/K4ruSdBYWLkAAAAd/globolinha-neymar.gif)
+
+  ![](https://media1.tenor.com/m/K4ruSdBYWLkAAAAd/globolinha-neymar.gif)
